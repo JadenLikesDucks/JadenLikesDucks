@@ -1,5 +1,5 @@
-- 👋 Hi, I’m @JadenLikesDucks
-- 👀 I’m interested in making music
-- 🌱 I’m currently learning how to code
-- 💞️ I’m looking to collaborate on nothing rn, check later
-- 😄 Pronouns: She/Her
+Hi. 
+
+I'm a person.
+
+Don't expect too regular updates.
